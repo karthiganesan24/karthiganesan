@@ -1,2 +1,0 @@
-# karthiganesan
-portfolio
